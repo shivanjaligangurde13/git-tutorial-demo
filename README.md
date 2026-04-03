@@ -1,1 +1,1 @@
-Shivanjali says that this community is amazing 
+Shivanjali says that today is an amazing day! 
